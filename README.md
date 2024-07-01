@@ -1,1 +1,1 @@
-# soamaka.github.io
+# vinscript.github.io
